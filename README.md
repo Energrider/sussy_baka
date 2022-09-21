@@ -1,2 +1,2 @@
-# sussy_baka
+# sussy baka
 idk tbh
